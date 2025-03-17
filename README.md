@@ -6,3 +6,6 @@
 **practical 3**
 ![Image](https://github.com/user-attachments/assets/b042c6da-fd87-4c69-a912-f420a2e218b2)
 **practical 4**
+![Image](https://github.com/user-attachments/assets/fb5b9d31-9314-41e6-9b2b-31086f416f25)
+**practical 5**
+![Image](https://github.com/user-attachments/assets/c8eebe1a-1975-4094-b981-95eb966992f3)
